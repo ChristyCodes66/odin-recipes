@@ -5,5 +5,5 @@ You'll find recipes like the rich and creamy *Marry Me Chicken,* vibrant *Pico d
 
 ### Recipe Photo Credits:
 - Marry Me Chicken, Gayle McLeod: [Marry Me Chicken](https://themodernproper.com/marry-me-chicken)
-- Southern Baked Macaroni and Cheese Recipe, Divas Can Cook, [Southern Baked Macaroni and Cheese](https://divascancook.com/southern-baked-macaroni-and-cheese-recipe/)
+- Southern Baked Macaroni and Cheese Recipe, Divas Can Cook: [Southern Baked Macaroni and Cheese](https://divascancook.com/southern-baked-macaroni-and-cheese-recipe/)
 - Biscoff Cheesecake: [Biscoff Cheesecake](https://www.tamingtwins.com/biscoff-cheesecake/)
